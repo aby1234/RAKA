@@ -1,2 +1,0 @@
-# RAKA
-BOT SEPUN
